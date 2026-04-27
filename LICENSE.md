@@ -1,4 +1,4 @@
-
+no-ban Script for jujutsu shenanigans is the best jujutsu shenanigans Script, featuring undetectable and no cooldown. Safe and powerful for all your
 
 
 
